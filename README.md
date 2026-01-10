@@ -1,4 +1,4 @@
-### Hi, I'm Nawapon Somruang 🌟 — You can call me: **Fornor**
+## Hi, I'm Nawapon Somruang 🌟 — You can call me: **Fornor**
 
 ---
 

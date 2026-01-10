@@ -1,7 +1,5 @@
 ## Hi, I'm Nawapon Somruang 🌟 — You can call me: **Fornor**
 
----
-
 #### About Me
 * I am a junior full-stack developer and still gaining experience.
 * I am continuously learning and working on projects across different programming languages.

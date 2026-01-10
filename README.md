@@ -1,4 +1,7 @@
-## Hi, I'm Nawapon Somruang 🌟 — You can call me: **Fornor**
+#### Hi, I'm Nawapon Somruang 🌟 — You can call me: **Fornor**
+My Instagram **f_n.or**
+
+---
 
 #### About Me
 * I am a junior full-stack developer and still gaining experience.

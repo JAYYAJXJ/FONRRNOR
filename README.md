@@ -1,5 +1,5 @@
-### Hi, I'm Nawapon Somruang 🌟 — You can call me: **Fornor**
-### My Instagram **f_n.or**
+### Hi, I'm Minthadol 🌟 — You can call me: **Jay**
+### My Instagram ****
 
 ---
 

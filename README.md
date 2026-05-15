@@ -1,4 +1,4 @@
-### Hi, I'm Minthadol 🌟 — You can call me: **Jay**
+### Hi, I'm Minthadol 🌟 — You can call me: **FORNOR**
 ### My Instagram ****
 
 ---
